@@ -1,2 +1,2 @@
 # Personal webpage
-🌐 Link: https://hoangtien2k3qx1.github.io/
+🌐 Link: https://hoangtien2k3.github.io/
